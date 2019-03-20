@@ -14,8 +14,6 @@
 
 ### Directions
 
-#### Pepper
-
 1. Cut red pepper in half and roast at 375 for 1/2 hour, turning halfway through.
 2. Melt butter at medium heat.
 3. Add onion and garlic, cook for five minutes.
