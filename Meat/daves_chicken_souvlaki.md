@@ -1,4 +1,4 @@
-## Chicken Souvlaki
+## Dave's Chicken Souvlaki
 
 ### Ingredients
 
