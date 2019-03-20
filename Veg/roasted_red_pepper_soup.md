@@ -8,7 +8,7 @@
 * 3 large potatoes, peeled and diced
 * 3 cups vegetable soup stock
 * 1/2 tsp pepper
-* 1/2 tsp salt
+* salt to taste
 * 1 red pepper
 * 1 tsp balsamic vinegar
 
