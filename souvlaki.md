@@ -15,9 +15,10 @@
 ### Directions
 
 #### Marinade (15 minutes; 12-24 hours in fridge)
-2. Mix all marinade ingredients in a ziplock bag. Massage through the bag or mix with a spoon.
-3. Add the chicken to the ziplock bag and massage the chicken to distribute the marinade.
-4. Marinade in the fridge overnight. Massage the chicken every few hours to ensure an even marinade.
+
+1. Mix all marinade ingredients in a ziplock bag. Massage through the bag or mix with a spoon.
+2. Add the chicken to the ziplock bag and massage the chicken to distribute the marinade.
+3. Marinade in the fridge overnight. Massage the chicken every few hours to ensure an even marinade.
 
 #### Prep + Cooking (25 minutes)
 
