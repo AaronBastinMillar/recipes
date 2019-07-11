@@ -18,4 +18,4 @@
 
 ### Directions
 
-1. Brown beef and add to pot with water, boullion, parsley, and rosemary.
+1. 
